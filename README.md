@@ -1,4 +1,4 @@
-# 💼 Portfolio Personnel – Gracia Ornelia Agbehonou
+# 💼 Portfolio Personnel – G.O 
 
 > Développeuse Full Stack Junior | Lomé, Togo
 
